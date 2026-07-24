@@ -1,4 +1,4 @@
-# My Goals
+# My Goals "Don't learn what to write. Learn why it is written."
 
 ## Short Term
 
